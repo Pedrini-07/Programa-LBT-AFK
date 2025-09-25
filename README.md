@@ -1,2 +1,2 @@
 # Programa-LBT-AFK
-Trabajillo
+Trabajillo jkj kj jk 
